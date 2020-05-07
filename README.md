@@ -12,4 +12,8 @@ My favorite color:
 
 > Green
 
+My current aspirations:
+
+> Corporate guru
+
 Thank you so much for reading! 
